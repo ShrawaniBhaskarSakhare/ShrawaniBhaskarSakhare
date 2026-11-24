@@ -7,7 +7,6 @@ I am deeply driven by the vision of using technology not just for innovation, bu
 I am constantly learning, experimenting, and building impactful solutions with a commitment to grow, innovate, and serve the nation through technology.
 Email Me 👉 ✉️ **shrawanisakhare2910@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/shra_wani29) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/shrawani-sakhare-1b5213299/) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:shrawanisakhare2910@gmail.com) 
  
